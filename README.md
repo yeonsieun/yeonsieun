@@ -1,4 +1,4 @@
 - hii I'm zoey ,, finn or sieun ^^
 - they . it . his
 - I like roleplaying & acting loll
-- https://rentry.co/yeonsieun
+- https://rentry.co/sieunyeon
